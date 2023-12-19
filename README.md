@@ -1,1 +1,0 @@
-# ustainable-city-initiatives
